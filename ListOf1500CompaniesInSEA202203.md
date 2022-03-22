@@ -171,6 +171,7 @@ Bombay Shaving Company
 Biryani By Kilo  
 Bikaji Foods  
 BluSmart Mobility  
+Barclays
 Bijnis  
 Bit.Country Network  
 Bubbly  
