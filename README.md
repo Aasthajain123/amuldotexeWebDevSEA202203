@@ -6,6 +6,6 @@ Initial list is of ~1500 companies, assimilated via various friends who collecte
 Please feel free to suggest additions to this list.
 
 ## Utility
-Ideally a smart person can apply to 10 companies a day & cover these comapnies in 5 months.
+Ideally a smart person can apply to 10 companies a day & cover these companies in 5 months while increasing their knowledge about the market.
 
 If you find the accidentally find this list to be useful, feel free to let me know on https://twitter.com/amuldotexe 
